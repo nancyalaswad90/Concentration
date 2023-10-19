@@ -4,7 +4,7 @@
 
 
 
-- [The mole solution](https://youtube.com/playlist?list=PL8mtSf_9o-8WwtnRmDAqFH_Bk2ia-WXLT&si=ER5xaipG1lPETjny)
+- ** First lecture idea : **[The mole solution](https://youtube.com/playlist?list=PL8mtSf_9o-8WwtnRmDAqFH_Bk2ia-WXLT&si=ER5xaipG1lPETjny)
 
 - 
 
